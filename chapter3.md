@@ -1,0 +1,2 @@
+Slow and steady wins the race!!!
+Bob started out quite slow compared to the other 8 turtles. By 4 days into the race, the other turtles had already covered 9 miles while Bob was still at mile 3. The leading pack of turtles were Joe marx, Zach Appleton, and Lauren Washington. They were all top turtles hailing from the state of Vermont. Lauren Washington was favored to win the race, as her record 87 mile time was 2 weeks and 3 days. This race was taking place in florida though, and Lauren wasn't used to running in the hot humid weather. 
